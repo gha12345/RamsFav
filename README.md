@@ -4,7 +4,7 @@
 # Tools
 * [rawgit.com](https://rawgit.com/)
 * [stackedit](https://stackedit.io/) - Online Markdown Editor with Preview
-* [WEBSITE DOWNLOADER](https://websitedownloader.io/) - Download all the source code and assets of any website
+* [Online Website Downloader](https://websitedownloader.io/) - Download all the source code and assets of any website
 
 
 
