@@ -20,10 +20,11 @@ https://css-tricks.com/average-web-page-data-analyzing-8-million-websites/
 https://codegeekz.com/fresh-tools-for-developers-august-2016/
 https://github.com/veggiemonk/awesome-docker
 
-
+### Accessing localhost From Anywhere
 * [ngrok](https://ngrok.com/) - Secure tunnels to localhost
 * [localtunnel](https://localtunnel.github.io/www/) - Expose yourself to the world
-
+* [PageKite](PageKite.net) - the fast, reliable localhost tunneling solution
+* [Forward](forwardhq.com) - Get a shareable URL for your local dev site with one click
 
 
 
