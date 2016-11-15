@@ -7,3 +7,8 @@ http://www.healthy-holistic-living.com/ginger-chews.html?t=JERF
 
 http://www.realfarmacy.com/grow-turmeric/
 http://wisemindhealthybody.com/lani/how-much-water-drink-for-your-weight/?t=jvg
+
+
+http://www.healthy-holistic-living.com/how-improve-eyesight.html?t=JERF
+
+http://www.healthnutnews.com/colorado-doctor-becomes-youtube-sensation-simple-vertigo-fix/
