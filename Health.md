@@ -12,3 +12,8 @@ http://wisemindhealthybody.com/lani/how-much-water-drink-for-your-weight/?t=jvg
 http://www.healthy-holistic-living.com/how-improve-eyesight.html?t=JERF
 
 http://www.healthnutnews.com/colorado-doctor-becomes-youtube-sensation-simple-vertigo-fix/
+
+http://www.slugline.us/amazing-benefits-of-garlic-you-never-knew-before/
+http://www.slugline.us/here-is-how-to-prevent-dark-spots/
+http://www.slugline.us/remove-pores-on-your-face-at-home/
+http://www.slugline.us/amazing-uses-of-cabbage-leaves/
