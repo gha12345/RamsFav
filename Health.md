@@ -1,5 +1,8 @@
 # Health
 
+Coconut Oil and Lemon Juice for Grey Hair
+http://www.newhealthadvisor.com/coconut-oil-and-lemon-juice-for-grey-hair.html
+
 http://isha.sadhguru.org/blog/video/how-much-sleep/
 ![1](https://scontent.fsnc1-3.fna.fbcdn.net/v/t1.0-9/14718879_1164448733600988_7687755775095692831_n.jpg)
 
@@ -18,7 +21,7 @@ http://www.slugline.us/here-is-how-to-prevent-dark-spots/
 http://www.slugline.us/remove-pores-on-your-face-at-home/
 http://www.slugline.us/amazing-uses-of-cabbage-leaves/
 
-# Palio
+# Paleo
 http://www.healthy-holistic-living.com/turmeric-brain-health.html?t=JERF
 
 * [The Ultimate Paleo Shopping List](https://paleocrashcourse.com/paleo-shopping-list/)
