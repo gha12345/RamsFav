@@ -25,3 +25,11 @@ http://www.slugline.us/amazing-uses-of-cabbage-leaves/
 http://www.healthy-holistic-living.com/turmeric-brain-health.html?t=JERF
 
 * [The Ultimate Paleo Shopping List](https://paleocrashcourse.com/paleo-shopping-list/)
+
+
+
+http://fitlife.tv/everything-you-need-to-know-about-inflammation/
+http://realfarmacy.com/10-symptoms-you-have-parasites-in-your-body-and-how-to-remove-them/
+
+
+
